@@ -1,4 +1,5 @@
 ## Hi there 👋
+![Kolobok Gg Sticker - Kolobok Gg - Descubre y comparte GIF](https://github.com/user-attachments/assets/648b85e5-bdca-487b-a6c9-ea1b07c9940c)
 
 <!--
 **Nickodilas/Nickodilas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
