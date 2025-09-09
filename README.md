@@ -1,5 +1,5 @@
 ## Hai wak,me name is nico,yu kol me koko 👋
-![tumblr_mc0otzjZAM1r1rrxzo1_500_gif (500×400)](https://github.com/user-attachments/assets/5fd9549b-a909-4be2-95d9-20731f2c314b)
+ ![cb2007f3-9f85-48af-9a3f-035b95535b72](https://github.com/user-attachments/assets/3d2d0b8f-0a5c-424f-9470-dcbaabd3034f) ![tumblr_mc0otzjZAM1r1rrxzo1_500_gif (500×400)](https://github.com/user-attachments/assets/5fd9549b-a909-4be2-95d9-20731f2c314b)
 
 <!--
 **Nickodilas/Nickodilas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
